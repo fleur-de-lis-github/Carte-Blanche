@@ -10,7 +10,7 @@ When a person self-identifies as a problem gambler, they typically fill out a fo
 
 ## Problem: Case Study
 
-![alt](https://c.tenor.com/Yw7STJhV-JgAAAAC/daniel-craig-james-bond.gif)
+![Alt Text](https://c.tenor.com/Yw7STJhV-JgAAAAC/daniel-craig-james-bond.gif)
 
 Research demonstrates that gambling support services often do not meet the needs of people seeking help for their gambling problems. In particular, the needs of cultural groups, and gender-specific needs of men and women are neglected. Understanding differences in help seeking behaviour can assist in developing early interventions to address gambling related problems and in developing effective strategies. 
 
