@@ -24,8 +24,8 @@ Casinos we must use facial identification and recognition closely monitor the ar
 
 
 ## Potential Client
+![alt](https://c.tenor.com/Yw7STJhV-JgAAAAC/daniel-craig-james-bond.gif)
 
-![ChessUrl](https://c.tenor.com/Yw7STJhV-JgAAAAC/daniel-craig-james-bond.gif "chess")
 
 As the gambling industry changes in response to technological and social developments, the risks to consumers also change. The Department recognises this and has committed to reviewing the Gambling Act 2005, with a particular focus on online gambling. It is important that regulators have capacity and flexibility to respond to industry developments
 and new risks as they emerge.
